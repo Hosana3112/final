@@ -1,9 +1,13 @@
 # final
        Les membres du groupes
 HAZOUME Lucius
+
 HOUETEHOU Jubiléenne
+
 OGOUTCHORO Modeste
+
 VEHOUNKPE Daren
+
 ZITTI Hosana
 
       Difficultés rencontrées 
